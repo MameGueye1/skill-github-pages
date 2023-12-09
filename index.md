@@ -6,7 +6,7 @@
  MAME DIARRA GUEYE
  
  
-Contact Info: mamegueye314@gmail.com • mgueye006@citymail.cuny.edu 
+Contact Info: mamegueye314@gmail.com • mgueye006@citymail.cuny.edu         
 
 
 EDUCATION     
