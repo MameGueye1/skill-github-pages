@@ -1,4 +1,13 @@
-Mame Diarra Gueye
-title: Welcome to my blog
-Student at The City College of New York
+
+
+
+MAME DIARRA GUEYE
+
+Student at The City College od New York 
+
+Majoring in Civil engineering with a concentration in Strutural engineering. 
+
+
+
+
 
