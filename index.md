@@ -1,6 +1,7 @@
 
  
- 
+ ![portrait](https://github.com/MameGueye1/skill-github-pages/assets/143229038/5b15c08e-14ef-411c-9bc4-690f5936e1b9)
+
  
  
  Mame Diarra Gueye
